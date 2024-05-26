@@ -1,3 +1,6 @@
+                            Read my carrd, patreon, or rentry for more info about me!!
+
+
 ![tumblr_79b8f21b02e5a2988315da1d55e1f9e7_516435f5_100](https://github.com/xt4bris/yay/assets/165219843/95288de0-ac63-4f19-aea1-2ef6d99fa55d)
 ![tumblr_9ee1343895c22b5d7e7d0e0472c6fa2b_548a88aa_100](https://github.com/xt4bris/yay/assets/165219843/dd358b0d-ca0f-4616-aa3c-8122c98a03fc)
 ![tumblr_b2443230ca4edcd2ffd331fadeafacd6_b7b7197b_100](https://github.com/xt4bris/yay/assets/165219843/d8bad448-1aad-4c23-8ae7-5c8ef3518c4a)
@@ -22,3 +25,17 @@
 ![tumblr_58d06d44608dc4f0d741e65766fc3985_6dbd3454_100](https://github.com/xt4bris/yay/assets/165219843/62a6f89d-0a9e-4ed0-9476-62ea658135bc)
 ![tumblr_2aec57d4fca7a285ab6a6995830828fc_42e6d24a_100](https://github.com/xt4bris/yay/assets/165219843/83da96e6-9798-404b-b8a5-610fa49a854f)
 ![tumblr_1edec0fd3479badd5fc55b57c62b7f83_ec6aad8a_100](https://github.com/xt4bris/yay/assets/165219843/8c6d7f20-db65-4e70-b04f-9efa40781da8)
+![da2o2md-1ac0f208-e64c-49cd-86f7-0686416cee59](https://github.com/xt4bris/yay/assets/165219843/35567714-4f22-45ed-8606-af44a8872d80)
+![da3ranq-96b7b056-e193-4994-9fa8-9c40eee12f56](https://github.com/xt4bris/yay/assets/165219843/3624e538-9fac-484a-b94f-d40a0bdd3ca6)
+![da47097-88f91e81-2412-463c-a3b2-3d9d1b604f06](https://github.com/xt4bris/yay/assets/165219843/d59a65a7-4b29-4bed-b880-6baea55cc0f7)
+![dacfef0-918de20b-8c8f-4a1b-94e8-5d402416846d](https://github.com/xt4bris/yay/assets/165219843/f7a38adf-4206-4785-8868-09abf1e38900)
+![dacfegf-c8f41be1-6ea4-418c-9acb-acd93a6083bc](https://github.com/xt4bris/yay/assets/165219843/ae617ecb-4e3c-4925-825b-295b52f09200)
+![da470cj-ef43d06f-1fa8-4e2d-8d05-43b05778aac2](https://github.com/xt4bris/yay/assets/165219843/6e7f9840-3d54-43a1-b738-0d4c02f8cc25)
+![da470fd-02afa803-14b6-4662-84dd-1b930b318e1d](https://github.com/xt4bris/yay/assets/165219843/12df9c8c-919f-4f21-b3de-180ff03ecd0c)
+![tumblr_2b97ee8415d04ea7bea872a13aa7e4e0_06dac630_100](https://github.com/xt4bris/yay/assets/165219843/fe99ebec-87bc-483a-9c94-6c6f7dce38f4)
+![tumblr_055400706fd0cc4354dae28a41cb3647_c8aee6d7_100](https://github.com/xt4bris/yay/assets/165219843/4e9a78d2-9705-4f5d-b254-d8c9fb1837df)
+![tumblr_f06969e1d5455bf197d087b3826ed4dc_d23c1a26_100](https://github.com/xt4bris/yay/assets/165219843/0051e27f-c574-4932-93bf-9587e74effce)
+![tumblr_7da28c5505a3f86e52eee8c48bebc54a_8618a8e0_100](https://github.com/xt4bris/yay/assets/165219843/34938f13-5223-44e2-bede-18712754d554)
+![tumblr_ec88102e8122b453a2bd32d0c8ddd731_e128150a_100](https://github.com/xt4bris/yay/assets/165219843/2a8a71ce-6f76-4099-9418-734b5294292b)
+
+
